@@ -1,2 +1,2 @@
 # Micca-Old-Vase-Paste
-old vase paste someone paid for
+Belongs on github LOL
